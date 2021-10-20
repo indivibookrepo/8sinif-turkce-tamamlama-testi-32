@@ -1,0 +1,1 @@
+# 8sinif-turkce-tamamlama-testi-32
